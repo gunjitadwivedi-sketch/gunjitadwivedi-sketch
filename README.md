@@ -25,4 +25,4 @@ I'm just starting my coding journey and exploring the world of programming. This
 
 ### Let's Connect!
 
-Feel free to reach out to me if you'd like to collaborate on a project or just chat about tech, flowers, or animals!
+Feel free to reach out to me if you'd like to collaborate on a project or just chat about painting, tech, flowers, or animals!
